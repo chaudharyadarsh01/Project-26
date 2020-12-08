@@ -1,0 +1,1 @@
+All you need is: one finely chopped onion and tomato, one chopped green chilli, ½ tea spoon of coriander powder, red chilli powder, turmeric powder, mustard seeds and salt to taste.
